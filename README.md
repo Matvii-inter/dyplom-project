@@ -1,3 +1,4 @@
 
-[V-1234-INZ-2025.pdf_-_praca_inżynierska_w_Akademii_Finansów_i_Biznesu_VISTULA.zip](https://github.com/user-attachments/files/26940346/V-1234-INZ-2025.pdf_-_praca_inzynierska_w_Akademii_Finansow_i_Biznesu_VISTULA.zip)
-# dyplom-project
+[V_62634_INZ_2026_pdf_praca_inżynierska_w_Akademii_Finansów_i_Biznesu.pdf](https://github.com/user-attachments/files/30285885/V_62634_INZ_2026_pdf_praca_inzynierska_w_Akademii_Finansow_i_Biznesu.pdf)
+
+[V_1234_INZ_2025_pdf_praca_inżynierska_w_Akademii_Finansów_i_Biznesu.zip](https://github.com/user-attachments/files/30285880/V_1234_INZ_2025_pdf_praca_inzynierska_w_Akademii_Finansow_i_Biznesu.zip)
